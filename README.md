@@ -1,5 +1,5 @@
 - 👋 Hey ba, I’m @manuke98 
-- 🌱 I’m currently learning german langg and react
+- 🌱 
 - 📫 How to reach me: kestenmanuela@gmail.com
 
 <!---
