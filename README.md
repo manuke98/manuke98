@@ -1,5 +1,5 @@
-- 👋 Hey ba, I’m @manuke98 
-- 🌱 
+- 👋 Hey there, I’m Manuela K.
+- 🌱 here i grow
 - 📫 How to reach me: kestenmanuela@gmail.com
 
 <!---
