@@ -1,4 +1,4 @@
-- 👋 Hey there, I’m Manuela K.
+- 👋 Hey there, I’m Manuela Kesten
 - 🌱 here i grow
 - 📫 How to reach me: kestenmanuela@gmail.com
 
